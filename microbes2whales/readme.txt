@@ -1,1 +1,1 @@
-Home for microbes to whales (m2w) analysis.
+Home for microbes to whales (m2w) study.
